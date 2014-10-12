@@ -1,6 +1,7 @@
 # Nan Shepherd
 
 Nan Shepherd (1893&ndash;1981) was a Scottish writer and university lecturer.  
+
 Shepherd's last published work, *The Living Mountain &mdash; A celebration of
 the Cairngorm Mountains of Scotland* (1977), has gained in popularity during
 recent years. The three novels she published during the 1920s and 1930s remain
