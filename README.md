@@ -24,4 +24,4 @@ by Canongate Classics and contains the three novels along with *The Living
 Mountain* and is the easiest way to get hold of her complete prose works.
 
 She also published *In the Cairngorms*, a collection of her poetry. This has
-been recently reissued (2014) by Galileo Publishers, Cambridge. 
+been recently reissued (2014) by Galileo Publishers, Cambridge.  
